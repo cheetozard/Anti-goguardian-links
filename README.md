@@ -6,3 +6,4 @@ DO NOT UNDER ANY CIRCUMSTANCE SHARE IT WITH A TEACHER/ADMIN/UNTRUSTWORTHY PERSON
 You can also find other repositories ex: byepasshub that will lead you to network of docs and hundreds of links.
 This is made for goguardian however it will have a few working links for other blockers.
 Please star this repository if you like our work.
+We are pausing our efforts during summer break so we will be mostly inactive during this period of time.
