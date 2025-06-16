@@ -12,3 +12,17 @@ this doc has all of its sites checked for malware. “status: might steal your i
 6. PLEASE NOTE: SOME BLOCKERS MAY BLOCK CERTAIN SITES THAT MAY BE BLOCKED OTHERWISE. Complaints will be acknowledged but please take note of this.
 
 7. Current acronyms: DOB=depends on blocker ( some sites may be unblocked on some blockers and unblocked on others & vise versa ) FGU= for game users ( Don’t risk)
+
+8. JUST ABOUT ALL SITES DOB UNLESS OTHERWISE NOTED(see #7)
+
+STAFF RULES
+
+1 You may be banned for 1 week of inactivity, however there are excuses: break, punishment, unavailability. We will be mostly inactive during breaks.
+
+2 YOU WILL BE BANNED FOR SNITCHING;OUR TERMS AND AGREEMENTS CLEARLY STATE THAT YOU NEED TO PUT YOURSELF IN FRONT OF THE CAUSE ex: get in trouble without revealng the "cause"
+
+3 Greifing, demoting and doing anything unsupportive of the cause is a reason for punishment ex: demoting, ban etc
+
+4 All suportive behavior relating to the cause will be rewarded
+
+5 As for payement: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact me.
