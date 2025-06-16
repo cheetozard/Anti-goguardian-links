@@ -15,7 +15,7 @@ this doc has all of its sites checked for malware. “status: might steal your i
 
 8. JUST ABOUT ALL SITES DOB UNLESS OTHERWISE NOTED(see #7)
 
-STAFF RULES
+STAFF RULES:
 
 1 You may be banned for 1 week of inactivity, however there are excuses: break, punishment, unavailability. We will be mostly inactive during breaks.
 
@@ -25,4 +25,4 @@ STAFF RULES
 
 4 All suportive behavior relating to the cause will be rewarded
 
-5 As for payement: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact me.
+5 As for payement: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact cheetozard through the [google sites](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit?eops=0).
