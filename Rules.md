@@ -19,10 +19,10 @@ STAFF RULES:
 
 1 You may be banned for 1 week of inactivity, however there are excuses: break, punishment, unavailability. We will be mostly inactive during breaks.
 
-2 YOU WILL BE BANNED FOR SNITCHING;OUR TERMS AND AGREEMENTS CLEARLY STATE THAT YOU NEED TO PUT YOURSELF IN FRONT OF THE CAUSE ex: get in trouble without revealng the "cause"
+2 YOU WILL BE BANNED FOR SNITCHING;OUR TERMS AND AGREEMENTS CLEARLY STATE THAT YOU NEED TO PUT YOURSELF IN FRONT OF THE CAUSE ex: get in trouble without revealing the "cause"
 
 3 Greifing, demoting and doing anything unsupportive of the cause is a reason for punishment ex: demoting, ban etc
 
-4 All suportive behavior relating to the cause will be rewarded
+4 All supportive behavior relating to the cause will be rewarded
 
-5 As for payement: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact cheetozard through the [google sites](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit?eops=0).
+5 As for payment: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact cheetozard through the [google sites](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit?eops=0).
