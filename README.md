@@ -7,4 +7,5 @@ You can also find other repositories ex: byepasshub that will lead you to networ
 This is made for goguardian however it will have a few working links for other blockers.
 Please star this repository if you like our work.
 We are pausing our efforts during summer break so we will be mostly inactive during this period of time.
-Feedback ?/links ? Give them [here](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit)
+
+Apply [here](https://docs.google.com/forms/d/1P9FZihWjChoGTCU3Ppl42WHA094n0qtiTossCMWbJjk/edit)Feedback ?/links ? Give them [here](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit)
