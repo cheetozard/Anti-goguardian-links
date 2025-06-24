@@ -1,4 +1,4 @@
-1 Ignore the “”
+1 Ignore the “This file looks suspiscious”
 this doc has all of its sites checked for malware. “status: might steal your info”means it might be a hacking website.
 
 2 Please take precaution while using this doc because if an administrator/teacher finds out about it all the links will be blocked. “status:?” means it is unchecked for availability during school hours. We are completing these passively..🧑‍💻
@@ -23,6 +23,6 @@ STAFF RULES:
 
 3 Greifing, demoting and doing anything unsupportive of the cause is a reason for punishment ex: demoting, ban etc
 
-4 All supportive behavior relating to the cause will be rewarded
+4 All positive behavior relating to the cause will be rewarded
 
 5 As for payment: if you found the site being sold you will get an extra pay, if you got in trouble you get a temporary pay raise and if you have any other questions contact cheetozard through the [google sites](https://docs.google.com/forms/d/1SwpGPQM1-uYrWQv39pjeG1nQx6-gFARkMN4OOFPQklE/edit?eops=0).
